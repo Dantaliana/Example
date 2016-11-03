@@ -1,1 +1,1 @@
-panryz to kochany uzytkownik, ktory mi pomaga :D 
+panryz to buc :F
