@@ -1,1 +1,1 @@
-wykopki ss¹ pa³e
+panryz to kochany uzytkownik, ktory mi pomaga :D 
